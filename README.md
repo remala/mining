@@ -1,0 +1,2 @@
+# mining
+manvswildnetgeo.blogspot.com
